@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @TimqReal
+- 👀 I’m interested in Freakfortress2
+- 🌱 I’m currently learning how to live
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me discord
+- 😄 Pronouns: atomic head
+- ⚡ Fun fact: i like turqouse
